@@ -1,4 +1,4 @@
-Heyo! Jasper, I'm a retired pro-gamer and ran my own business for more then 11 years! 
+Heyo! My name is Jasper or Xeno, I'm a retired pro-gamer and ran my own business for more then 11 years! 
 
 Sadly I had to stop both of those and now I am focusing on a new passion, programming and software engineering!
 
